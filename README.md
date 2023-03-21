@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Artem-Uteg
 - 👀 I’m interested in mathematics and programming
-- 🌱 I’m currently learning at MIPT
-- 📫 How to reach me @Utegartem - Telegram
+- 🌱 I’m currently studying at MIPT
+- 📫 How to contact me @Utegartem - Telegram
